@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @HeliosLz
 - 👀 I’m interested in AI DeFi NFT
-- 🌱 I’m currently learning AI和Defi
+- 🌱 I’m currently learning AI and Defi
 - 💞️ I’m looking to collaborate on marketing.
 - 📫 How to reach me heliosgopher@gmail.com
 
